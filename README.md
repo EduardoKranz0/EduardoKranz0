@@ -1,4 +1,4 @@
-##👋 Olá ! Sou Eduardo Kranz
+## 👋 Olá ! Sou Eduardo Kranz
 
 🎓 Aluno da Faculdade UNIMATER  
 📍 Cidade: Clevelândia - PR
